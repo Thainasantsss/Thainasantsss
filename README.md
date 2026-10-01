@@ -35,6 +35,6 @@ Gosto de aprender, criar e transformar ideias em coisas que realmente funcionam.
 
 ###  obrigada por passar por aqui!
 
- [LinkedIn](www.linkedin.com/in/thaina-santsss)
+ [LinkedIn](https://www.linkedin.com/in/thaina-santsss)
 
 </div>
